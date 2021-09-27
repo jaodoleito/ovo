@@ -1,0 +1,1 @@
+Essa receita explica como fazer uma omelete.

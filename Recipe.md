@@ -1,0 +1,1 @@
+Quebre o ovo em uma frigideira, coloque sal, coloque em fogo baixo, e depois continue mexendo ate ficar ovogenio e firme, sirva-se.
